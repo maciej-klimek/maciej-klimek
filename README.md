@@ -2,7 +2,7 @@
 
 
 
-### Hi! I’m Maciek, 👋 
+### Hi! I’m Maciek 👋 
 Second year student of ICT at AGH University of Science and Technology 🟢⚫🔴
 <br><br>
 
